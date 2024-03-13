@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any projects related to the aforementioned domains, but open to challenges outside my topics of interest
 - 📫 How to reach me: http://linkedin.com/in/madimabelorraine
 - 😄 Pronouns: Yours *winks
-- ⚡ Fun fact: I believe that i am an animal whisperer
+- ⚡ Fun fact: I am an animal whisperer
 
 <!---
 Nomadiclorr/Nomadiclorr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
